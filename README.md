@@ -153,4 +153,4 @@ BharatNova is a:
 
 For demo access or partnership inquiries, connect via email or social links.
 
-📫 **Contact**: [aadits83_off@gmail.com]
+📫 **Contact**: [aadits83.off@gmail.com]
